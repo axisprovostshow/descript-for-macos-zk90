@@ -1,4 +1,4 @@
-# 
+# Descript for macOS smart Plugin: AI-upscaling & time-remapping is the best Descript for macOS plugin, featuring AI-upscaling and time-remapping. Safe, efficient, and optimized for
 
 
 
